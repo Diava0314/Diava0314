@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Diava0314
-- 👀 I’m interested in todo  lo refente a la tecnología
+- 👀 I’m interested in todo  lo refente a la tecnologí
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
